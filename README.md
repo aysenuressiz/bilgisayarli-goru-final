@@ -1,0 +1,1 @@
+# bilgisayarli-goru-final
